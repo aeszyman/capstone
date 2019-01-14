@@ -33,3 +33,14 @@ Required for art history majors in their senior year. Prerequisite: ARTH 465.
 It is expected that you will attend all classes, that you will prepare for classes ahead of time, and that you will participate actively in class activities and discussions. Students will present their projects to the faculty of the Department of Art and Art History during the first third of the semester. It is expected that you will attend this event and participate actively in it by presenting and discussion your own project and by asking questions and offering feedback to your classmates.
 ## Final Thesis
 The instructor will give feedback on each chapter, introduction, and conclusion. Please see the course schedule for specific due dates. The students will then have a week to revise and resubmit. If they need more time, they must communicate their timeline to the instructor. The instructor will evaluate the theses based on this [grading rubric](https://richmond.box.com/s/l6mfim7g16tidw6s7sras7dl3k6ksz3y).
+
+## Course Schedule
+**January 17**
+
+**January 24**
+
+**January 31**
+
+**February 7**
+
+**February 14**

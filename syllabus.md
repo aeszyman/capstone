@@ -63,8 +63,6 @@ Please submit a revised chapter.
 
 **February 21**
 
-Please submit an introduction and a conclusion.
-
 Please submit a revised chapter.
 
 **February 28**

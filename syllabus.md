@@ -39,21 +39,15 @@ Each student is required to present their thesis project at the [Student Symposi
 The instructor will give feedback on each chapter, introduction, and conclusion. Please see the course schedule for specific due dates. The instructor will evaluate each thesis based on this [grading rubric](https://richmond.box.com/s/l6mfim7g16tidw6s7sras7dl3k6ksz3y).
 
 ## Course Schedule
-**January 17**
-
-Course Introduction
+**January 17: Course Introduction**
 
 **January 24**
 
 Please submit a chapter.
 
-**January 29**
+**January 29 Oral Presentations**
 
-Oral Presentations
-
-**January 31**
-
-No Class
+**January 31: No Class**
 
 Please submit a chapter.
 
@@ -85,35 +79,23 @@ Please submit the Student Symposium paper and slideshow.
 
 Please submit a revised chapter.
 
-**March 14**
-
-No Class: Spring Break
+**March 14: No Class: Spring Break
 
 **March 21**
 
 Please submit a revised introduction and a revised conclusion.
 
-**March 28**
+**March 28 Practice Talks**
 
-Practice Talks
-
-**April 4**
+**April 4: Practice Talks**
 
 Please submit the entire thesis.
 
-Practice Talks
+**April 11 Final Touches on the Symposium Talk**
 
-**April 11**
+**April 12: Student Symposium**
 
-Final Touches on the Symposium Talk
-
-**April 12**
-
-Student Symposium
-
-**April 18**
-
-Final Touches on the Entire Thesis.
+**April 18 Final Touches on the Entire Thesis**
 
 **April 25**
 

@@ -31,16 +31,44 @@ Required for art history majors in their senior year. Prerequisite: ARTH 465.
 
 ## Participation
 It is expected that you will attend all classes, that you will prepare for classes ahead of time, and that you will participate actively in class activities and discussions. Students will present their projects to the faculty of the Department of Art and Art History during the first third of the semester. It is expected that you will attend this event and participate actively in it by presenting and discussion your own project and by asking questions and offering feedback to your classmates.
+
+## 2019 A&S Student Symposium
+Each April, we celebrate our diverse community of learners at the Student Symposium, a showcase of student-led research projects from nearly 30 disciplines in the arts, humanities, sciences, and social sciences. Student researchers share their scholarly work with the campus community and the public in the form of oral presentations, poster sessions, performances, and art exhibits. The Symposium gives students the opportunity to present their work in a professional setting, comparable to any international conference or discipline-specific symposium. It also helps them gain experience speaking publicly and translating their knowledge to a broad audience. The 2019 Student Symposium will be held on Friday, April 12. Student applications are now being accepted at this [site](https://as.richmond.edu/student-research/symposium/application.html). 
 ## Final Thesis
 The instructor will give feedback on each chapter, introduction, and conclusion. Please see the course schedule for specific due dates. The students will then have a week to revise and resubmit. If they need more time, they must communicate their timeline to the instructor. The instructor will evaluate the theses based on this [grading rubric](https://richmond.box.com/s/l6mfim7g16tidw6s7sras7dl3k6ksz3y).
 
 ## Course Schedule
 **January 17**
 
+
 **January 24**
 
+**January 29**
+Oral Presentations
+
 **January 31**
+No Class
 
 **February 7**
 
 **February 14**
+
+**February 21**
+
+**February 28**
+
+**March 7**
+
+**March 14**
+
+**March 21**
+
+**March 28**
+
+**April 4**
+
+**April 11**
+
+**April 18**
+
+**April 25**

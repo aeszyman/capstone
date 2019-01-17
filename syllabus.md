@@ -113,7 +113,7 @@ Student Symposium
 
 **April 18**
 
-Final Touches on the entire thesis.
+Final Touches on the Entire Thesis.
 
 **April 25**
 

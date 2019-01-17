@@ -58,6 +58,7 @@ No Class
 Please submit a chapter.
 
 **February 7**
+
 Please submit a chapter.
 
 **February 14**

@@ -1,7 +1,7 @@
 # ARTH 466: Thesis Research Project
 Spring 2019
 
-Thursdays at 4-6:40 pm
+Thursdays at 4:00-6:40 pm
 
 Brunet 125
 

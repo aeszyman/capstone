@@ -67,21 +67,19 @@ Please submit a revised chapter.
 
 **February 28**
 
-Please submit a conclusion.
-
 Please submit a revised chapter.
 
 **March 7**
 
-Please submit the Student Symposium paper and slideshow.
+Please submit a revised chapter if your thesis has four chapters.
 
-Please submit a revised chapter.
+Please submit a revised introduction and a revised conclusion.
 
 **March 14: No Class: Spring Break**
 
-**March 21**
+**March 21: No Class**
 
-Please submit a revised introduction and a revised conclusion.
+Please submit the Student Symposium paper and slideshow.
 
 **March 28: Practice Talks**
 

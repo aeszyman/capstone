@@ -45,7 +45,7 @@ The instructor will give feedback on each chapter, introduction, and conclusion.
 
 Please submit a chapter.
 
-**January 29 Oral Presentations**
+**January 29: Oral Presentations**
 
 **January 31: No Class**
 
@@ -79,13 +79,13 @@ Please submit the Student Symposium paper and slideshow.
 
 Please submit a revised chapter.
 
-**March 14: No Class: Spring Break
+**March 14: No Class: Spring Break**
 
 **March 21**
 
 Please submit a revised introduction and a revised conclusion.
 
-**March 28 Practice Talks**
+**March 28: Practice Talks**
 
 **April 4: Practice Talks**
 

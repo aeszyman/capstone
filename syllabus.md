@@ -46,7 +46,7 @@ Please submit a list of questions.
 
 **January 24**
 
-Peer Review.
+Peer Review
 
 **January 29**
 

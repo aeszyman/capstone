@@ -104,7 +104,7 @@ Practice Talks
 
 **April 11**
 
-Final Touches on the Symposium Talk.
+Final Touches on the Symposium Talk
 
 **April 12**
 

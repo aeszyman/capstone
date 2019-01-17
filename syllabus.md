@@ -33,20 +33,19 @@ Required for art history majors in their senior year. Prerequisite: ARTH 465.
 It is expected that you will attend all classes, that you will prepare for classes ahead of time, and that you will participate actively in class activities and discussions. Students will present their projects to the faculty of the Department of Art and Art History during the first third of the semester. It is expected that you will attend this event and participate actively in it by presenting and discussion your own project and by asking questions and offering feedback to your classmates.
 
 ## 2019 A&S Student Symposium
-Each student is required to present their thesis project at the [Student Symposium](https://as.richmond.edu/student-research/symposium/): Each April, we celebrate our diverse community of learners at the Student Symposium, a showcase of student-led research projects from nearly 30 disciplines in the arts, humanities, sciences, and social sciences. Student researchers share their scholarly work with the campus community and the public in the form of oral presentations, poster sessions, performances, and art exhibits. The Symposium gives students the opportunity to present their work in a professional setting, comparable to any international conference or discipline-specific symposium. It also helps them gain experience speaking publicly and translating their knowledge to a broad audience. The 2019 Student Symposium will be held on Friday, April 12. Student applications are now being accepted at this [site](https://as.richmond.edu/student-research/symposium/application.html). 
+Each student is required to present their thesis project at the [Student Symposium](https://as.richmond.edu/student-research/symposium/): Each April, we celebrate our diverse community of learners at the Student Symposium, a showcase of student-led research projects from nearly 30 disciplines in the arts, humanities, sciences, and social sciences. Student researchers share their scholarly work with the campus community and the public in the form of oral presentations, poster sessions, performances, and art exhibits. The Symposium gives students the opportunity to present their work in a professional setting, comparable to any international conference or discipline-specific symposium. It also helps them gain experience speaking publicly and translating their knowledge to a broad audience. The 2019 Student Symposium will be held on Friday, April 12. Student applications are now being accepted at this [site](https://as.richmond.edu/student-research/symposium/application.html).
+
 ## Final Thesis
 The instructor will give feedback on each chapter, introduction, and conclusion. Please see the course schedule for specific due dates. The instructor will evaluate each thesis based on this [grading rubric](https://richmond.box.com/s/l6mfim7g16tidw6s7sras7dl3k6ksz3y).
 
 ## Course Schedule
 **January 17**
 
-Please submit the Student Symposium application.
-
-Please submit a list of questions.
+Course Introduction
 
 **January 24**
 
-Peer Review
+Please submit a chapter.
 
 **January 29**
 
@@ -63,7 +62,7 @@ Please submit a chapter.
 
 **February 14**
 
-Please submit a chapter.
+Please submit a introduction and a conclusion.
 
 Please submit a revised chapter.
 
@@ -80,6 +79,8 @@ Please submit a conclusion.
 Please submit a revised chapter.
 
 **March 7**
+
+Please submit the Student Symposium paper and slideshow.
 
 Please submit a revised chapter.
 

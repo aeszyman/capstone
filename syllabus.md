@@ -63,7 +63,7 @@ Please submit a chapter.
 
 **February 14**
 
-Please submit a introduction and a conclusion.
+Please submit an introduction and a conclusion.
 
 Please submit a revised chapter.
 

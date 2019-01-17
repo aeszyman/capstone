@@ -40,6 +40,7 @@ The instructor will give feedback on each chapter, introduction, and conclusion.
 ## Course Schedule
 **January 17**
 Please submit the application.
+
 Please submit a list of questions.
 
 **January 24**
@@ -50,6 +51,7 @@ Oral Presentations
 
 **January 31**
 No Class
+
 Please submit a chapter.
 
 **February 7**
@@ -57,14 +59,17 @@ Please submit a chapter.
 
 **February 14**
 Please submit a chapter.
+
 Please submit a revised chapter.
 
 **February 21**
 Please submit an introduction and a conclusion.
+
 Please submit a revised chapter.
 
 **February 28**
 Please submit a conclusion.
+
 Please submit a revised chapter.
 
 **March 7**
@@ -81,6 +86,7 @@ Practice Talks
 
 **April 4**
 Please submit the entire thesis.
+
 Practice Talks
 
 **April 11**

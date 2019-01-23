@@ -91,7 +91,7 @@ Please submit the entire thesis.
 
 **April 12: Student Symposium**
 
-**April 18 Final Touches on the Entire Thesis**
+**April 18: Final Touches on the Entire Thesis**
 
 **April 25**
 
